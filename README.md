@@ -19,3 +19,4 @@ Pura p ciencia de datos y no m
 yuguuuu!!!!
 
 fri fay?
+Jerry esta aqui
