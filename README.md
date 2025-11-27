@@ -17,3 +17,5 @@ Hola :)
 Pura p ciencia de datos y no m
 
 yuguuuu!!!!
+
+fri fay?
